@@ -3,7 +3,7 @@
 ## seunbayo
 ## damilare
 ## marvelous
-## opeyemi
+## opeyemi Adewumi
 ## muyiwas
 ## micheal
 ## isaiah
